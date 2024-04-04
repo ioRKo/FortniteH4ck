@@ -7,6 +7,7 @@
 > Interium is designed specifically to give players the ability to fully control the gameplay and enjoy the game without limitations. We offer an extensive set of features that can be activated and customized according to each player's preferences. Just recently we decided to make our cheat free and available to all players without exception. Thanks to our 24/7 support, we fix your problems on time and keep our cheat on top.
 
 ### Showcase
+![image](https://github.com/ioRKo/FortniteCheat/assets/166031780/2680a914-65a9-469f-b58e-12e0e6cad566)
 
 
 ### Features 🛠️:
